@@ -12,5 +12,4 @@ Meu nome é Lucas Formagio
 
 @lucas.ziz
 
-
 ![](https://media1.tenor.com/m/XlaCzQDfPMEAAAAd/corinthians-hugo-souza.gif)
