@@ -13,4 +13,4 @@ Meu nome é Lucas Formagio
 @lucas.ziz
 
 
-![](https://tenor.com/pt-BR/view/corinthians-rodrigo-garro-gif-3467882418664779333)
+![](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
